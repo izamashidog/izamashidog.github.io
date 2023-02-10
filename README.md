@@ -1,0 +1,1 @@
+# izamashidog.github.io
